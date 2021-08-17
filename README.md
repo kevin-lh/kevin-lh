@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kevin-lh,a cute boy form HeiBei,Baoding
+- 👋 Hi, I’m @kevin-lh,a cute boy form Baoding,HeiBei
 - 👀 I’m interested in ...eeee so many thing, especially coding, ohhh~~~ . But i also like playing basketball and take photos by my camera！！！
 - 🌱 I’m currently learning ...JavaEE and so on
 - 💞️ I’m looking to collaborate on ...any things~~~~
